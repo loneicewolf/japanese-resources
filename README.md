@@ -1,0 +1,2 @@
+# japanese-resources
+Japanese everywhere! 
